@@ -1,4 +1,4 @@
-# jon-YAKITORY – 混沌ブギ
+# jon-YAKITORY、初音ミク – 混沌ブギ (irucaice Remix)
 
 > **歌詞登録ステータス：同期歌詞あり**
 
